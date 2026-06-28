@@ -11,7 +11,7 @@
 - 💻 I know **HTML, Python, C, Java, MySQL and PHP**
 - 💬 Ask me about **Java, DSA, AI/ML, Databases**
 - 📫 Reach me at **pachauriaditya18@gmail.com**
-- 🏏 Cricket Lover | Virat Kohli Fan | RCB ❤️
+- 🏏 Follows Cricket | Admires Virat Kohli  | RCB ❤️
 
 ---
 
